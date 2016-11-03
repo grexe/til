@@ -1,0 +1,1 @@
+first heard of this word by a local colleague from the lab, and [autoclave](https://en.wikipedia.org/wiki/Autoclave) is a device for heating things up quickly, usually used in labs for sterilization, but also useful in general, e.g. in the Glühwein season,-)
